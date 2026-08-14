@@ -157,8 +157,8 @@ I'm looking for opportunities where I can:
 
 ## 📫 Connect With Me
 
-* 💼 LinkedIn: [Add your LinkedIn URL]
-* 📧 Email: [Add your Email]
+* 💼 LinkedIn: [www.linkedin.com/in/abdul-shakoor-06b22235]
+* 📧 Email: [abdulshakoor3621@gmail.com]
 * 🌐 Portfolio: [Add your Portfolio URL]
 
 ---
